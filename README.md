@@ -1,2 +1,2 @@
-All images except placeholder.jpg/png belong to me!!!
+All images except placeholder.jpg/png and yharnam.jpg/gif belong to me!!!
 if used credit or smth
